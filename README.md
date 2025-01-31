@@ -6,5 +6,5 @@
 
 Скрин:
 
-![Unsplash image](https://i.ibb.co/KycPGgH/2024-12-18-18-46.png)
+![Unsplash image](https://i.ibb.co/23vTpF09/2025-01-31-13-31.png")
 
